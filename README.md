@@ -1,4 +1,4 @@
-Shaggy x matt mod was made from srPerez 
+Shaggy x matt mod was made by srPerez 
 
 Shaggy mod 21 key, idk who made it, but I really respect their work and creativity
 
