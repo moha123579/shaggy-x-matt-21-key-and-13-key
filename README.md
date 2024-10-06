@@ -4,6 +4,10 @@ Shaggy mod 21 key, idk who made it, but I really respect their work and creativi
 
 shaggy x matt 21 key dev version aka this project by me ! Moha123579 or Moha1235
 
+Feel free to make changes since this mod is still in development (I won’t be completing it). I would appreciate it if you could mention my name and tag me so I can see the mod if possible!
+email me at mohf4220@gmail.com , if you  make changes to the mod so i can see it !
+
+
 
 ![KadeEngineLogo](https://user-images.githubusercontent.com/26305836/110529589-4b4eb600-80ce-11eb-9c44-e899118b0bf0.png)
 
